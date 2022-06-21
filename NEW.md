@@ -1,1 +1,1 @@
-Proizvolnoe Soderzhanie!
+Proizvolnoe!
